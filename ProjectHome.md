@@ -1,0 +1,1 @@
+MyCraft is a project me and some friends are working on, I can't say this enough, we aren't professionals so if you have some criticism to come with, please let it be constructive and show us what we could have done differently.
